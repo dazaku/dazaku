@@ -1,7 +1,11 @@
 <p align="center">
 <img src=https://i.postimg.cc/T12hr94Z/Untitled100-20250920174947.png>
 
-usually afking on ponytown
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ  ㅤ usually afking on ponytown
 
-no dni anyone can int. thats all👍 ![](https://i.postimg.cc/HnqZvdJM/Untitled101-20250920212621.png)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤ  ㅤ   ㅤㅤ no dni anyone can int. thats all👍
+</p>
+
+<p align="center">
+ <img src=https://i.postimg.cc/HnqZvdJM/Untitled101-20250920212621.png>
 </p>
