@@ -3,7 +3,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ  ㅤ usually afking on ponytown
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤdazaku shipper. let this be your indicator as to the kind of person i am
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤdazaku shipper. let this be your indicator as to the kind of person i am
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤ  ㅤ   ㅤㅤ no dni anyone can int. thats all👍
 </p>
