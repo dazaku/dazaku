@@ -27,3 +27,13 @@ theres more ships i enjoy besides this, but this is all i feel like listing :P
   <img src=https://i.postimg.cc/YqtcW3hH/Untitled125-20250925222658.png>
  
  </div>
+
+
+ <div align="center">
+
+<img src=https://i.postimg.cc/8cTvCtrL/1071338ipvpyh23ww.gif> <img src=https://i.postimg.cc/wTwPZRk8/c5c8d523e6262e4d1b87ffc21eb3febdfd96ff04.gif> <img src=https://i.postimg.cc/ncRmHKVQ/uP8nSvW.gif> <img src=https://i.postimg.cc/sgbZWVhj/03165f83d18c9778294892247256a7ffe45edf9b.gif> <img src=https://i.postimg.cc/NFbH2m1S/hk33.gif> <img src=https://i.postimg.cc/cLvn6K6k/1f4e956cae9703991e3661be4bdc6e427c542fde.gif> <img src=https://i.postimg.cc/hGxQbHL9/d2763d8d3fc2b9704011bbf15483b21d9c2d0dc8.gif> <img src=https://i.postimg.cc/66hRPJDc/tumblr-inline-p3vf256-PXU1rv0j40-500.gif> <img src=https://i.postimg.cc/PrrZsVHj/tumblr-otbhki-BFVr1wtplxko4-250.gif> <img src=https://i.postimg.cc/ncRmHKVQ/uP8nSvW.gif> 
+
+<img src=https://i.postimg.cc/50Bv1Zjx/cd84f2e39968f3a0008d5c5bfae763adf7cd5394.gif>
+
+  
+ </div>
