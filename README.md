@@ -22,7 +22,9 @@ theres more ships i enjoy besides this, but this is all i feel like listing :P
 
  theres more fandoms and interests i have, but these are just the important ones!
 
- i dont have a specific dni, i enjoy all interacctions and i block/avoid anyone i do not like
+ i dont have a specific dni, i enjoy all interacctions and i block/avoid anyone i do not like.
+ 
+ *do not involve me into any discourse please. i do not care, and just want to have fun sitting with my friends*
  
   <img src=https://i.postimg.cc/YqtcW3hH/Untitled125-20250925222658.png>
  
