@@ -5,6 +5,8 @@ hi! you can call me celeste, or any other names in my prns cc ^^ my pref prns ar
 
 im pretty much always afking on ponytown, c+h fine at all times! w2i as im usually offtabbed. please dont copy my ponies, light inspiration is fine! if were friends i might come up to u randomly to cuddle, if this makes u uncomfy dont be afraid to let me know and i can step back ^^ 
 
+*if i ignore your whisper, it isnt on purpose. after a certain amount of time you cant reply to whispers that got sent :((*
+
 if you cant already tell, i am a proshipper. my current fave ships are dazaku and mattlouis! i also enjoy dazatsu, sterlingcest, florimatt and adamil. 
 
 theres more ships i enjoy besides this, but this is all i feel like listing :P
