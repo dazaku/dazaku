@@ -1,7 +1,7 @@
 <div align="center">
 <img src=https://i.postimg.cc/T12hr94Z/Untitled100-20250920174947.png>
  
-hi! you can call me celeste, or any other names in my prns cc ^^ my pref prns are it/its.
+hi! you can call me ryuno, or any other names in my prns cc ^^ my pref prns are it/its.
 
 im pretty much always afking on ponytown, c+h fine at all times! im a protree sitter :3 w2i as im usually offtabbed. please dont copy my ponies, light inspiration is fine! if were friends i might come up to u randomly to cuddle, if this makes u uncomfy dont be afraid to let me know and i can step back ^^ 
 
