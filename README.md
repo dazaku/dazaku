@@ -7,7 +7,7 @@ im pretty much always afking on ponytown, c+h fine at all times! im a protree si
 
 *if i ignore your whisper, it isnt on purpose. after a certain amount of time you cant reply to whispers that got sent :(( i will not help with party limits! i am always already in a party*
 
-if you cant already tell, i am a proshipper. my current fave ships are dazaku and mattlouis! i also enjoy dazatsu, sterlingcest, florimatt and adamil. 
+if you cant already tell, i am a proshipper. my current fave ships are dazaku and mattlouis! i also enjoy dazatsu, doushino, sterlingcest, florimatt and adamil. 
 
 theres more ships i enjoy besides this, but this is all i feel like listing :P
 </div>
